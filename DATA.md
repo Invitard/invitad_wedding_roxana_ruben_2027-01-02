@@ -18,7 +18,7 @@ Ceremonia religiosa:
 Recepción: 
 Local de la boda: “hacienda Dorada”
 direccion exacta: Av. Alcides Carrión Nro 107- Distrito Socabaya.
-Hora 1:00 pm
+Hora 2:00 pm
 Nombre de la canción de la invitación: heaven-Bryan Adams 
 Codigo de vestimenta:
 Elegante - agradecemos evitar prendas de tonos claros como blanco, ivory, beige, crema y derivados estos  estos tonos han sido reservados para los novios. 
